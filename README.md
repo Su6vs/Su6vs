@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Su6vs but its Survs
 - 👀 I’m interested Minecraft (Mainly Bedrock), Youtube(@Survs on yt), and maybe streaming.
 - 🌱 I’m currently learning Python as my first coding language.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m Back To Coding :D
 - 📫 How to reach me on discord Survs#2700
 
 <!---
